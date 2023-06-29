@@ -22,4 +22,7 @@ A: HECK YES!
 A. Cow tongue, and it was VERY chewy.
 
 8. What is the strangest food you've tried? You've got me curious.
+A. Love Lengua! Escargot, Foie Gras, Alligator, Camel, Meal Worms
+
+9. What is your guilty pleasure show or movie?
 
