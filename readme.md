@@ -16,3 +16,6 @@ A. I have hiked up several. with the right gear and people I would climb for sur
 A. Heck NO. 
 
 6. Would YOU eat a rocky mountain oyster?
+A: HECK YES!
+
+7. What is the strangest food you've tried?
