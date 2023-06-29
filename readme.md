@@ -19,3 +19,7 @@ A. Heck NO.
 A: HECK YES!
 
 7. What is the strangest food you've tried?
+A. Cow tongue, and it was VERY chewy.
+
+8. What is the strangest food you've tried? You've got me curious.
+
