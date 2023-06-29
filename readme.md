@@ -7,3 +7,6 @@ A. It depends on if I have the patience at that time.
 A: I do, my grandma tought me 
 
 3. Would you eat pickles and ice cream?
+A. Together, no but separate, YES. 
+
+4. Would you ever climb a mountain?
