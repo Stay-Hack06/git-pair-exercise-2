@@ -25,4 +25,6 @@ A. Cow tongue, and it was VERY chewy.
 A. Love Lengua! Escargot, Foie Gras, Alligator, Camel, Meal Worms
 
 9. What is your guilty pleasure show or movie?
+A. The NoteBook or Sex in the City.
 
+If you could travel anywhere in the world, where would you go and why?
