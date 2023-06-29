@@ -13,3 +13,6 @@ A. Together, no but separate, YES.
 A. I have hiked up several. with the right gear and people I would climb for sure.
 
 5. Would you ever eat a rocky mountain oysters?
+A. Heck NO. 
+
+6. Would YOU eat a rocky mountain oyster?
